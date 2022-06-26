@@ -1,4 +1,2 @@
-RAHAYU
+akjdbflsu;vjxchjvkljxcbvhs;'ov;sflkjvdfl;vkjsi;lfjaofsdjhsdkvxcjkvxcjvkxckjvxcjkvxchjkvjxchvhcxhjvxchjvjkxcvcxjvcxjkvcxjkvjxcvjkxcvjcxvjkcxvkjxcvxcvcxvxcvxcjkvxcvkjsfa
 aku
-dia
-kamu
