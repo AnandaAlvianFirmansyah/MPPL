@@ -1,3 +1,4 @@
 RAHAYU
 aku
 dia
+kamu
